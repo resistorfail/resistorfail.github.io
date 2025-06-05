@@ -1,0 +1,1 @@
+# resistorfail.github.io
